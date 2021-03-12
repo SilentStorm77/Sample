@@ -4,7 +4,7 @@ Cristiano Ronaldo
 Lionel Messi
 Robert Lewandowski
 Neymar
-Harry Kane
+Harry 
 DeBruyne
 Mbappe
 Aubameyang
